@@ -1,4 +1,4 @@
-
+Asana for macOS vip Addon - auto-sync and note encryption offers the most advanced Asana for macOS addon, with auto-sync and note encryption. Ideal for professionals.
 
 
 
